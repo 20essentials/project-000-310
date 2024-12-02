@@ -1,0 +1,3 @@
+- **Reference ⬇️**
+  - [DVD IMAGE](https://www.freeiconspng.com/thumbs/dvd-logo-png/dvd-logo-png-3.png)
+  - [YOUTUBE VIDEO INSPIRATION](https://youtu.be/5mGuCdlCcNM?si=1-k7X3CWuxeQul9N)
